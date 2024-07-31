@@ -13,3 +13,5 @@ Meu nome é **Gabriel de Jesus Oliveira**
 **Discord:** bag1204
 
 ![](https://media1.tenor.com/m/xfsFj7A6lJMAAAAd/galaxy.gif)
+
+> Escrito por Gabriel de Jesus Oliveira..
